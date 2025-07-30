@@ -23,7 +23,7 @@
 
 ### 🤝 Let's Connect!
 
-- 🔗 [https://www.linkedin.com/in/yusuf-abdulrasheed-adinoyi/](https://www.linkedin.com/in/yusuf-abdulrasheed-adinoyi/))
+-  LinkedIn: [https://www.linkedin.com/in/yusuf-abdulrasheed-adinoyi/]((https://www.linkedin.com/in/yusuf-abdulrasheed-adinoyi/))
 - 🌐 [Portfolio]()
 - 🐦 Twitter: [https://x.com/iamAdinoyi]((https://x.com/iamAdinoyi))
 
